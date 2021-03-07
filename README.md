@@ -1,0 +1,1 @@
+# Almaty-techno.github.io
